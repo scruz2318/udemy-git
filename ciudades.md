@@ -5,3 +5,4 @@
 3. Hell's Kitchen
 4. Cuidad Sandino
 5. Managua
+6. Masaya
