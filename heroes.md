@@ -8,5 +8,5 @@
 -   Robin
 -   Volcán Negro
 -   Salvador
--   Yaosla la Lorente
+-   Yaoska la Lorente
 -   Francys la Mamá
